@@ -1,14 +1,14 @@
 ---
-title: Vytvo� si sv�j Bullet Journal
+title: Vytvoř si svůj Bullet Journal
 ---
 
-**Cht�la bych �ten��e sezn�mit s t�m, co to vlastn� bullet journal je, jeliko� na �esk�m webu nen� p��li� mnoho ofici�ln�ch informac�. Podobn� den�k si sama tak� vedu, tud� mohu vyu��t i vlastn� zku�enosti.**
+**Chtěla bych čtenáře seznámit s tím, co to vlastně bullet journal je, jelikož na českém webu není příliš mnoho oficiálních informací. Podobný deník si sama také vedu, tudíž mohu využít i vlastní zkušenosti.**
 
-Bullet journal nem� p�esn� n�zev v �e�tin�, ale ve sv� podstat� jde o di��/den�k, kter� si tvo��te �pln� sami. Je jen na v�s, jak�m stylem to pojmete - zda si budete v�st minimalistick� p�ehledy nebo si budete svoje z�pisky zdobit kresbami, samolepkami �i dekora�n�mi p�skami.
+Bullet journal nemá přesný název v češtině, ale ve své podstatě jde o diář/deník, který si tvoříte úplně sami. Je jen na vás, jakým stylem to pojmete - zda si budete vést minimalistické přehledy nebo si budete svoje zápisky zdobit kresbami, samolepkami či dekoračními páskami.
 
-Nejjednodu��� zp�sob jak za��t, je po��dit si vhodn� se�it a tu�ku. Nic jin�ho do za��tku nepot�ebujete. Se�it si m��ete vybrat dle libosti, nej�ast�ji se doporu�uje se�it s te�kovan�mi listy - dob�e se do n�j p�e a kresl�, a p�itom te�ky nejsou nijak ru�iv�.
+Nejjednodušší způsob jak začít, je pořídit si vhodný sešit a tužku. Nic jiného do začátku nepotřebujete. Sešit si můžete vybrat dle libosti, nejčastěji se doporučuje sešit s tečkovanými listy - dobře se do něj píše a kreslí, a přitom tečky nejsou nijak rušivé.
 
-Obsah di��e si tvo��te tak� sami. M��ete si zde v�st prakticky cokoliv, co je pro v�s d�le�it�. Bullet journal je o tom, aby vyhovoval va�im pot�eb�m. Pokud se pod�v�me na takov� den�k od dvou r�zn�ch osob, m��e u ka�d�ho vypadat �pln� jinak, a v tom je to kouzlo.
+Obsah diáře si tvoříte také sami. Můžete si zde vést prakticky cokoliv, co je pro vás důležité. Bullet journal je o tom, aby vyhovoval vašim potřebám. Pokud se podíváme na takový deník od dvou různých osob, může u každého vypadat úplně jinak, a v tom je to kouzlo.
 
 Zdroje:
 
