@@ -1,5 +1,5 @@
-title: My Super Project
-baseURL: https://xyz.netlify.com/
+title: Vytvoø si svùj Bullet Journal
+baseURL: https://friendly-montalcini-7d72fe.netlify.com/
 languageCode: cs-cz
 publishDir: public
 
@@ -16,4 +16,5 @@ menu:
 params:
   description: Description of my new site.
   authors: Authors
+
 

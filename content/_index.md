@@ -1,27 +1,19 @@
 ---
-title: Home
+title: Vytvoø si svùj Bullet Journal
 ---
 
-# Hello World! (It works!)
+**Chtìla bych ètenáøe seznámit s tím, co to vlastnì bullet journal je, jelikož na èeském webu není pøíliš mnoho oficiálních informací. Podobný deník si sama také vedu, tudíž mohu využít i vlastní zkušenosti.**
 
-This are the contents of the Hugo start website front page.
+Bullet journal nemá pøesný název v èeštinì, ale ve své podstatì jde o diáø/deník, který si tvoøíte úplnì sami. Je jen na vás, jakým stylem to pojmete - zda si budete vést minimalistické pøehledy nebo si budete svoje zápisky zdobit kresbami, samolepkami èi dekoraèními páskami.
 
-## Something to read: Sonnet LXVI.
+Nejjednodušší zpùsob jak zaèít, je poøídit si vhodný sešit a tužku. Nic jiného do zaèátku nepotøebujete. Sešit si mùžete vybrat dle libosti, nejèastìji se doporuèuje sešit s teèkovanými listy - dobøe se do nìj píše a kreslí, a pøitom teèky nejsou nijak rušivé.
 
-> *Tired with all these, for restful death I cry,  
-> As to behold desert a beggar born,  
-> And needy nothing trimm'd in jollity,  
-> And purest faith unhappily forsworn,  
-> And gilded honour shamefully misplaced,  
-> And maiden virtue rudely strumpeted,  
-> And right perfection wrongfully disgraced,  
-> And strength by limping sway disabled  
-> And art made tongue-tied by authority,  
-> And folly, doctor-like, controlling skill,  
-> And simple truth miscalled simplicity,  
-> And captive good attending captain ill:  
-> Tired with all these, from these would I be gone,  
-> Save that, to die, I leave my love alone.*
-> 
-> William Shakespeare
+Obsah diáøe si tvoøíte také sami. Mùžete si zde vést prakticky cokoliv, co je pro vás dùležité. Bullet journal je o tom, aby vyhovoval vašim potøebám. Pokud se podíváme na takový deník od dvou rùzných osob, mùže u každého vypadat úplnì jinak, a v tom je to kouzlo.
 
+Zdroje:
+
+https://bulletjournal.com/
+
+https://littlecoffeefox.com/ultimate-bullet-journal-cheat-sheet/
+
+https://www.youtube.com/watch?v=EgA33PwqAPM&list=PLzvTMfB-VuTsSbmCDxqPXXwNenJqKMa8z
