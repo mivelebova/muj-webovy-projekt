@@ -1,14 +1,14 @@
 ---
-title: Vytvoø si svùj Bullet Journal
+title: Vytvoï¿½ si svï¿½j Bullet Journal
 ---
 
-**Chtìla bych ètenáøe seznámit s tím, co to vlastnì bullet journal je, jelikož na èeském webu není pøíliš mnoho oficiálních informací. Podobný deník si sama také vedu, tudíž mohu využít i vlastní zkušenosti.**
+**Chtï¿½la bych ï¿½tenï¿½ï¿½e seznï¿½mit s tï¿½m, co to vlastnï¿½ bullet journal je, jelikoï¿½ na ï¿½eskï¿½m webu nenï¿½ pï¿½ï¿½liï¿½ mnoho oficiï¿½lnï¿½ch informacï¿½. Podobnï¿½ denï¿½k si sama takï¿½ vedu, tudï¿½ mohu vyuï¿½ï¿½t i vlastnï¿½ zkuï¿½enosti.**
 
-Bullet journal nemá pøesný název v èeštinì, ale ve své podstatì jde o diáø/deník, který si tvoøíte úplnì sami. Je jen na vás, jakým stylem to pojmete - zda si budete vést minimalistické pøehledy nebo si budete svoje zápisky zdobit kresbami, samolepkami èi dekoraèními páskami.
+Bullet journal nemï¿½ pï¿½esnï¿½ nï¿½zev v ï¿½eï¿½tinï¿½, ale ve svï¿½ podstatï¿½ jde o diï¿½ï¿½/denï¿½k, kterï¿½ si tvoï¿½ï¿½te ï¿½plnï¿½ sami. Je jen na vï¿½s, jakï¿½m stylem to pojmete - zda si budete vï¿½st minimalistickï¿½ pï¿½ehledy nebo si budete svoje zï¿½pisky zdobit kresbami, samolepkami ï¿½i dekoraï¿½nï¿½mi pï¿½skami.
 
-Nejjednodušší zpùsob jak zaèít, je poøídit si vhodný sešit a tužku. Nic jiného do zaèátku nepotøebujete. Sešit si mùžete vybrat dle libosti, nejèastìji se doporuèuje sešit s teèkovanými listy - dobøe se do nìj píše a kreslí, a pøitom teèky nejsou nijak rušivé.
+Nejjednoduï¿½ï¿½ï¿½ zpï¿½sob jak zaï¿½ï¿½t, je poï¿½ï¿½dit si vhodnï¿½ seï¿½it a tuï¿½ku. Nic jinï¿½ho do zaï¿½ï¿½tku nepotï¿½ebujete. Seï¿½it si mï¿½ï¿½ete vybrat dle libosti, nejï¿½astï¿½ji se doporuï¿½uje seï¿½it s teï¿½kovanï¿½mi listy - dobï¿½e se do nï¿½j pï¿½e a kreslï¿½, a pï¿½itom teï¿½ky nejsou nijak ruï¿½ivï¿½.
 
-Obsah diáøe si tvoøíte také sami. Mùžete si zde vést prakticky cokoliv, co je pro vás dùležité. Bullet journal je o tom, aby vyhovoval vašim potøebám. Pokud se podíváme na takový deník od dvou rùzných osob, mùže u každého vypadat úplnì jinak, a v tom je to kouzlo.
+Obsah diï¿½ï¿½e si tvoï¿½ï¿½te takï¿½ sami. Mï¿½ï¿½ete si zde vï¿½st prakticky cokoliv, co je pro vï¿½s dï¿½leï¿½itï¿½. Bullet journal je o tom, aby vyhovoval vaï¿½im potï¿½ebï¿½m. Pokud se podï¿½vï¿½me na takovï¿½ denï¿½k od dvou rï¿½znï¿½ch osob, mï¿½ï¿½e u kaï¿½dï¿½ho vypadat ï¿½plnï¿½ jinak, a v tom je to kouzlo.
 
 Zdroje:
 
