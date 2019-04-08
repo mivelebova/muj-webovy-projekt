@@ -1,5 +1,5 @@
 ---
-title:  "Co je to MMA?"
+title:  "Co je to MMA? Základní vysvětlení."
 date:   2019-04-08
 
 ---
